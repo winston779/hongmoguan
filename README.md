@@ -1,6 +1,6 @@
 # 红魔馆网络官网地址
 
-最新地址：[koumakanet.xyz](https://ueox7k3l04.yangmei.design/#/register?code=MGliL1zZ)
+最新地址：[koumakanet.xyz](https://buyaoshouchang3.hmgweb.vip/#/register?code=MGliL1zZ)
 
 ## 红魔馆网络介绍
 
